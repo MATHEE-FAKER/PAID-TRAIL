@@ -1,1 +1,1 @@
-# PAID-TRAIL
+# PAID-1.0
